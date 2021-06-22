@@ -13,6 +13,6 @@ IMAGES
 
 ![WhatsApp Image 2021-05-20 at 9 43 19 PM](https://user-images.githubusercontent.com/72187181/119118977-aeee3d00-b9b5-11eb-9591-5aa1bab0d9b6.jpeg)
 
-![WhatsApp Image 2021-05-20 at 9 43 17 PM](https://user-images.githubusercontent.com/72187181/119118979-af86d380-b9b5-11eb-8ea8-443c4335569c.jpeg)
+
 
 
